@@ -1,4 +1,9 @@
 ### Prazer, Jefferson Chaves (Jeef)
+
+![ideia](https://user-images.githubusercontent.com/68211202/146344856-cb145e11-013c-4c9b-9a2b-db5106785cd8.png).....![cod](https://user-images.githubusercontent.com/68211202/146344888-3587b9b2-c19c-4a2c-87c7-704c5d0674da.png).....![rocket](https://user-images.githubusercontent.com/68211202/146344907-9d776026-d042-4915-a6c1-bbadf198219e.png)
+
+
+
 <div>
 
   <a href="https://github.com/hiijeef">
